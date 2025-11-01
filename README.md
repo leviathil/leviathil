@@ -8,7 +8,7 @@
 $${\color{#a66ef0}{ponytown}\space \color{#a66ef0}{info}}$$
 
 ---
- <sup><sub> hello, ignore how this is soo lazy but idc. so like if you didn't read my strawpage, i'm xath, remind you that i'm 16 y.o b4 int (dni below 14). can be located at the entrance of the market, safe server.
+ <sup><sub> hello, ignore how this is soo lazy but idc. so like if you didn't read my strawpage, i'm xath, remind you that i'm 16 y.o (turning 17) b4 int (dni below 14). can be located at the entrance of the market, safe server.
 </sub></sup>
 
 <sup><sub> i'm mostly afk mostly bcs i'm drawing, and i may sound and look dry, intimidating, yada yada but i promise, i'm nice. feel free to approach and whisper/cuddle. (and like... befriend me if ur a fan of gachiakuta...) i'd do my best to seem friendly and less intimidating by matching your energy..
