@@ -1,4 +1,4 @@
- ![](https://komarev.com/ghpvc/?username=your-github-username&label=angels.)
+ ![](https://komarev.com/ghpvc/?username=your-github-username&label=angels.) 
 
 
 <p align="center">
@@ -8,6 +8,10 @@
 $${\color{#a66ef0}{ponytown}\space \color{#a66ef0}{info}}$$
 
 ---
+<sup><sub>
+(1.20 million profile viewers yet y'all dont interact with me, tsk tsk)
+</sub></sup>
+
  <sup><sub> hello, ignore how this is soo lazy but idc. so like if you didn't read my strawpage, i'm xath, remind you that i'm 16 y.o (turning 17) b4 int (dni below 14). can be located at the entrance of the market, safe server.
 </sub></sup>
 
