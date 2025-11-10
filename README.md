@@ -5,7 +5,7 @@
   <img width="100" height="200" src="https://file.garden/aHyw7A72XFB-UF6h/angel"
 </p>
 
-$${\color{#a66ef0}{ponytown}\space \color{#a66ef0}{info}}$$
+$${\color{#adadad}{ponytown}\space \color{#adadad}{info}}$$
 
 ---
 <sup><sub>
