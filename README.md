@@ -2,14 +2,14 @@
 
 
 <p align="center">
-  <img width="100" height="200" src="https://file.garden/aHyw7A72XFB-UF6h/angel"
+  <img width="500" height="300" src="https://file.garden/aHyw7A72XFB-UF6h/erymsybynakoraro"
 </p>
 
 $${\color{#adadad}{ponytown}\space \color{#adadad}{info}}$$
 
 ---
 <sup><sub>
-(1.20 million profile viewers yet y'all dont interact with me, tsk tsk)
+(1.20 million profile viewers yet y'all dont interact with me, tsk tsk) [also, art by my dear friend nakotaro on telegram!!, I love my ocxcanon...hehe..]
 </sub></sup>
 
  <sup><sub> hello, ignore how this is soo lazy but idc. so like if you didn't read my strawpage, i'm xath, remind you that i'm 16 y.o (turning 17) b4 int (dni below 14). can be located at around the market, safe server. if not there then that means im with a friend or obviously offline
