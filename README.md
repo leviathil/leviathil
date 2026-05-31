@@ -20,3 +20,6 @@ $${\color{#adadad}{ponytown}\space \color{#adadad}{info}}$$
 
 <sup><sub> if you notice that i haven't been active in ponytown, i'm probably busy with school work but i am active in discord. to get my discord you'll need to talk with me for like... idk maybe an hour or so... and if i'm in the mood i'll accept your friend req.
 </sub></sup>
+
+<sup><sub> ps. if your friend asked you why i hide them, I hid them because their friend also hid me, i dont usually hide people but yeah it just bothers me knowing someone hid me so i'll also hide someone who interacts with the said person since it looks weird and it makes me feel guilty that i didnt know i made someone uncomfortable. if you see this while had me hidden on ponytown, Im sorry if i made you uncomfortable in the said game. thats all
+</sub></sup>
