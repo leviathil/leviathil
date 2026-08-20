@@ -2,15 +2,13 @@
 
 
 <p align="center">
-  <img width="100" height="120" src="https://file.garden/ajj8E3d4nHk4IRjE/Simechibi"
+  <img width="100" height="126" src="https://file.garden/ajj8E3d4nHk4IRjE/Simechibi"
 </p>
 
 $${\color{#adadad}{ponytown}\space \color{#adadad}{info}}$$
 
 ---
-<sup><sub>
-[remember to smile and have a wonderful day..]
-</sub></sup>
+
 
  <sup><sub> hello, ignore how this is soo lazy 💔. so like if you didn't read my strawpage, i'm xath, remind you that i'm 17 y.o b4 int (dni below 15). can be located at around the market, safe server. if not there then that means im with a friend or obviously offline
 </sub></sup>
