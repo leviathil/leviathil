@@ -1,5 +1,8 @@
  ![](https://komarev.com/ghpvc/?username=your-github-username&label=posers.) 
 
+<sup><sub> ‎if ur reading this, boop/cuddle/whisper me if u want a sketch on your strawpage
+</sub></sup>
+
 
 <p align="center">
   <img width="200" height="326" src="https://file.garden/Z44fFnj5okOfzaTE/Screenshot_20260822_090702_Discord.jpg"
