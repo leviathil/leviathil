@@ -17,3 +17,5 @@ $\tiny\color{#cfa25f}{\textsf{anyprns}}$
 <img width="140" src="https://komarev.com/ghpvc/?username=your-github-username&label=Pretty+people&color=cf5b7c">
 
 <p align="center">$\tiny\color{#cf5b7c}{\textsf{I drew that guy on my img, my oc :D}}$
+  
+<p align="center">$\tiny\color{#cf5b7c}{\textsf{also PLS BMF!! Teach me more abt aph!}}$
