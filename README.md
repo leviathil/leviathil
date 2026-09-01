@@ -2,7 +2,7 @@
 
 
 
-<p align="center">$\color{#dbaf86}{\textsf{Xath}}$ $\color{#cfa25f}{\textsf{ieur}}$
+<p align="center">$\color{#dbaf86}{\textsf{𝑿𝒂𝒕𝒉}}$ $\color{#cfa25f}{\textsf{𝒊𝒆𝒖𝒓}}$
 
 
 $\tiny\color{#cfa25f}{\textsf{anyprns}}$ 
@@ -10,7 +10,11 @@ $\tiny\color{#cfa25f}{\textsf{anyprns}}$
 
 
 
-<p align="center">$\tiny\color{#dbaf86}{\textsf{sorry if this looks so yucky but bear with it}}$
+<p align="center">$\tiny\color{#dbaf86}{\textsf{Filipino!}}$
+ 
+---
+<p align="center">$\tiny\color{#cfa25f}{\textsf{DNI -15 - 26+ y.o / BASIC DNI LIST}}$
+<p align="center">$\tiny\color{#dbaf86}{\textsf{sorry if this read me looks so yucky but pls bear with it}}$
 <p align="center">$\tiny\color{#cfa25f}{\textsf{i really love drawing so i might put a daily sketch board to}}$ $\tiny\color{#dbaf86}{\textsf{showcase what i drew today!!}}$
 
 ---
