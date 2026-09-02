@@ -23,3 +23,7 @@ $\tiny\color{#cfa25f}{\textsf{anyprns}}$
 <p align="center">$\tiny\color{#cf5b7c}{\textsf{I drew that guy on my img, my oc :D}}$
   
 <p align="center">$\tiny\color{#cf5b7c}{\textsf{also PLS BMF!! Don't be shy!}}$
+
+
+---
+[![ezgif-8e2418cfae6f0b43.gif](https://i.postimg.cc/L6z68gdb/ezgif-8e2418cfae6f0b43.gif)](https://postimg.cc/Tp3Xkw3V)
