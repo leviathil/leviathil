@@ -22,4 +22,4 @@ $\tiny\color{#cfa25f}{\textsf{anyprns}}$
 
 <p align="center">$\tiny\color{#cf5b7c}{\textsf{I drew that guy on my img, my oc :D}}$
   
-<p align="center">$\tiny\color{#cf5b7c}{\textsf{also PLS BMF!! Don'tbe shy!}}$
+<p align="center">$\tiny\color{#cf5b7c}{\textsf{also PLS BMF!! Don't be shy!}}$
